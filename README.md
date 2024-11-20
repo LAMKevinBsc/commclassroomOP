@@ -1,3 +1,3 @@
 # commclassroomOP
-amazing
+amazing ok !
 Kunal Kushwaha learing github amazing..
